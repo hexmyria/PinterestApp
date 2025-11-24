@@ -1,4 +1,4 @@
-# PinterestApp
+# HexMyriaのプライバシーポリシー
 
 プライバシーポリシー（Privacy Policy）
 
